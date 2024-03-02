@@ -27,6 +27,3 @@ Don't give me drama
 My best friend lover
 When no money
 She no give honey
-She wan' leave daddy
-Big daddy
-![photo_2024-03-02_19-56-22](https://github.com/hielv/ali/assets/119615874/778f2413-899a-4e3c-96e3-560ceb0560dc)
